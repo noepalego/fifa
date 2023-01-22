@@ -1,4 +1,5 @@
 I was bad at fifa so i had to fix it
+
 From zero to hero: how I turned my FIFA team into a fortune by auto-trading
 
 When I first started playing FIFA, I had a terrible team. I couldn't win a single game and was constantly getting outplayed by other players. 
